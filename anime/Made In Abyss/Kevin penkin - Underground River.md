@@ -83,5 +83,5 @@
 
 **The Underground River Has shown**
 
-지하세계에 흐는 강이 보이고 있어
+지하세계에 흐르는 강이 보이고 있어
 
