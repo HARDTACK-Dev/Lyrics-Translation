@@ -2,14 +2,15 @@
 *Composer : Kevin Penkin <br>*
 *Vocal : Raj Ramayya*
 
+---
 
-**Traveling the aether back to you** 
+**<h2>Traveling the aether back to you</h2>** 
 
 너에게 돌아가기 위해 역장 속을 여행해
 
  
 
-**To a land so far away**
+**<h2>To a land so far away</h2>**
 
 아주 머나먼 곳으로
 
