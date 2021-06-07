@@ -26,7 +26,7 @@
 
  
 
-**Speaking through the river stream**
+**<h4>Speaking through the river stream</h4>**
 
 흐르는 강을 통하여 말하고 있어
 
