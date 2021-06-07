@@ -9,18 +9,18 @@
 
  
 
-**<h2>To a land so far away</h2>**
+**<h3>To a land so far away</h3>**
 아주 머나먼 곳으로
 
  
 
-**I feel the distance in-between**
+**<h3>I feel the distance in-between</h3>**
 
 공간 사이마다 거리감이 느껴저
 
  
 
-**A fragment of the world that used to be**
+**<h3>A fragment of the world that used to be</h3>**
 
 옛날 부터 존재 했었던 유물들은
 
