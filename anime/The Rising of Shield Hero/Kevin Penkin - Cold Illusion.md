@@ -1,9 +1,21 @@
 *Composer : Kevin Penkin <br>*
+ 
+<h3> Living every day</h3>
+날마다 삶을 살아
 
-Living every day
-As if I won't wake up again
-Cutting to the bone
-Just to relive us one last time
+**<h4>As if I won't wake up again</h4>**
+다시는
+<br>
+
+**<h4>Cutting to the bone<h4>**
+뼈를 깎아
+
+**<h3> Just to relive us one last time</h3>**
+마지막으로 우리를 한번 안심
+<br>
+<br>
+
+
 Through my execution
 I bleed right from the core
 Betrayal of the closest conscience
