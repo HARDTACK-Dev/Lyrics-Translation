@@ -20,6 +20,7 @@ I bleed right from the core
 Betrayal of the closest conscience
 I'll forever know
 
+
 Sitting in a cold illusion of my reality
 Crashing through the burning darkness
 All but consuming me
