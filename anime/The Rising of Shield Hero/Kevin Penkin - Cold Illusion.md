@@ -16,6 +16,8 @@
 <br>
 
 Through my execution
+
+나의 신념을 통한
 I bleed right from the core
 Betrayal of the closest conscience
 I'll forever know
