@@ -1,19 +1,17 @@
 *Composer : Kevin Penkin <br>*
  
-<h3> Living every day</h3>
+**<h3> Living every day</h3>**
 날마다 삶을 살아
 
 **<h4>As if I won't wake up again</h4>**
-다시는
+마치 다시는 일어나지 않을 것처럼
 <br>
 
 **<h4>Cutting to the bone<h4>**
-뼈를 깎아
+마지막으로 우리를 되살리기 위하여
 
 **<h3> Just to relive us one last time</h3>**
-마지막으로 우리를 한번 안심
-<br>
-<br>
+뼈를 깍아내려
 
 Through my execution
 
