@@ -14,9 +14,11 @@
 뼈를 깍아내려
 
 Through my execution
-
 나의 신념을 통한
+
 I bleed right from the core
+깊은 곳으로 부터 피를 흘려
+
 Betrayal of the closest conscience
 I'll forever know
 
