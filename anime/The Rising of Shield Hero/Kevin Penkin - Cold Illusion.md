@@ -20,7 +20,9 @@ I bleed right from the core
 깊은 곳으로 부터 피를 흘려
 
 Betrayal of the closest conscience
+
 I'll forever know
+나는 영원히 알거야
 
 
 Sitting in a cold illusion of my reality
