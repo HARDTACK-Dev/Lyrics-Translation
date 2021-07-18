@@ -22,6 +22,7 @@ I bleed right from the core
 Betrayal of the closest conscience
 
 I'll forever know
+
 나는 영원히 알거야
 
 
